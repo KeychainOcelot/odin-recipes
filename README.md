@@ -7,3 +7,7 @@ French Onion Soup: Robby Lozano / Food Styling: Amanda Hostein / Prop Styling: K
 Fillet Mignon: Allrecipes Magazine
 
 Steak Diane: Chef John
+
+Recipe attribution:
+
+AllRecipes
